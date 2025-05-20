@@ -1,2 +1,0 @@
-# leidy.github.io
-jj
